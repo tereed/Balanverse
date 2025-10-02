@@ -156,3 +156,5 @@ au一つ一つに次元と言う枠組み内での無限の可能性、無限の
 ・1D（半消滅）
 
 ・0D（完全消滅） 該当AU：GCT!tale、SC!tale(ShadowCrystal!tale)、IC!Undertale
+# 最後に
+Balanverseはほんとにそのままバランスのスペルとverseを組み合わせただけです、雑ですよねｗ
